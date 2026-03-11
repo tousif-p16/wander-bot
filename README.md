@@ -1,0 +1,1 @@
+https://wanderbot.lovable.app
